@@ -11,8 +11,18 @@
 <details> 
   <summary> Injective </summary>  
   
-  I am currently Knight ambassador of one of the fastest blockchain - Injective. The knight hardcap for recruiting is 300 so it is very precious role! 
-Achievements - As an ambassador of Injective, I got reposted by Injective official many times and featured on Injective! I won many contests regarding to art/infographic in Injective discord server!
+  🥷🏻 I am currently Knight ambassador of one of the fastest blockchain - Injective. The knight hardcap for recruiting is 300 so it is very precious role! 
+  
+** Achievements - As an ambassador of Injective, I got reposted by Injective official many times and featured on Injective! I won many contests regarding to art/infographic in Injective discord server!
+
+<h3> <u> Some highlights </u></h3> 
+
+|		|	URL	|	Views	|	Type	|	Remark	|	Graphics	|
+|	--	|	-------	|	-----	|	---	|	----------	|	----	|
+|	1	|	[Weekly Recap : Injective WEEK #4 JANUARY 🥷🏻        ](https://x.com/INJNaruto/status/1751154013876408810?s=20)	|	19.2K	|	Thread	|	Liked + Reposted by @Injective_	|	![image](https://pbs.twimg.com/media/GE1ZSgBawAAg8sK?format=jpg&name=4096x4096)	|
+|	2	|	[Weekly Recap : Injective WEEK #2 JANUARY 🥷🏻        ](https://x.com/INJNaruto/status/1746200567440113935?s=20)	|	21.7K	|	Thread	|	Liked + Reposted by @Injective_	|	![image](https://pbs.twimg.com/media/GDvAJgbagAA-Em-?format=jpg&name=4096x4096)	|
+|	3	|	[Discord Community Call : Injective + Gryphon_fi	](https://twitter.com/INJNaruto/status/1742867268047143166?s=20)"	|	16.6K	|	Tweet	|	Liked + Reposted by @Injective_	|	![image](https://pbs.twimg.com/media/GC_oc_jbkAA5FW3?format=jpg&name=large)	|
+|	4	|	[🥷🏻 Injective Weekly Burn Auction 	](https://x.com/INJNaruto/status/1751496169224798695?s=20)"	|	14.6K	|	Tweet	|	Liked + Reposted by @Injective_	|	![image](https://pbs.twimg.com/media/GE6MfGpbkAAZZOC?format=jpg&name=large)	|
 
 [<kbd> <br> Click here to see my work/content <br> </kbd>](https://github.com/KEYURBODAR/Knight-Works/blob/main/February-2024.md)
 
